@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mcphargus (aka Rowdy Yeets)
+- 👀 I’m interested in Jesus and pumpkin and pit bulls and motorcycles and lambdas and serverless and 
+- 🌱 I’m currently learning everything all the time at the same time and Segmentation Fault (Core Dumped)
+- 💞️ I’m looking to collaborate on motorcycle computers
+- 📫 How to reach me https://linktr.ee/rowdy.yeets
